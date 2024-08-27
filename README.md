@@ -7,3 +7,6 @@
 
 - ### Voce pode entrar em contato comigo
 - 00001097414498sp@al.educacao.sp.gov.br
+
+  ![](
+  https://tenor.com/pt-BR/view/cr7-calma-gif-24452747
